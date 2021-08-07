@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CarNageCG
+- 👀 I’m interested in video games.
+- 🌱 I’m currently learning how to script.
+- 📫 How to reach me Twitter: @CarNageCG
